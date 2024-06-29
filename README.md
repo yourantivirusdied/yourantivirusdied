@@ -18,6 +18,11 @@
 - I am currently learning Java, C#, and C++.
 - I would love to make new friends within the programming community. You can contact me via Discord, just know that I would prefer to talk to people under 25!
 
+### social links (heh, Persona reference):
+- [YouTube](https://www.youtube.com/channel/UCK1WdQECm5ZvFF6VF9KD0pg)
+- [Tumblr](https://mydarlingvivi.tumblr.com/)
+- [Instagram](https://www.instagram.com/yourantivirusdied/) 
+
 
 ### 🖤 about me 2 -- useless facts:
 - I like seafood. Any seafood. My favorite food is sushi and the only seafood I don't like (that I've tried) is packaged tuna.
