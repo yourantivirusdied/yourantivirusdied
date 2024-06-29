@@ -1,4 +1,4 @@
-# ** 🌙🌐 Welcome to my profile! 🌙🌐 **
+#  🌙🌐 **Welcome to my profile!** 🌙🌐 
 ### 💙 about me: 
 - My name is Vivi, but you may see me occasionally using the name, 'vaevictis', which is a pun on my IRL name.
 - I'm a high school sophomore, currently. #Classof2027 💕
