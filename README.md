@@ -18,7 +18,7 @@
 - I am currently learning Java, C#, and C++.
 - I would love to make new friends within the programming community. You can contact me via Discord, just know that I would prefer to talk to people under 25!
 
-### social links (heh, Persona reference):
+### 💜 social links (heh, Persona reference):
 - [YouTube](https://www.youtube.com/channel/UCK1WdQECm5ZvFF6VF9KD0pg)
 - [Tumblr](https://mydarlingvivi.tumblr.com/)
 - [Instagram](https://www.instagram.com/yourantivirusdied/) 
