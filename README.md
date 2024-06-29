@@ -19,7 +19,7 @@
 - I would love to make new friends within the programming community. You can contact me via Discord, just know that I would prefer to talk to people under 25!
 
 
-### 🖤 about me 2: useless facts:
+### 🖤 about me 2 -- useless facts:
 - I like seafood. Any seafood. My favorite food is sushi and the only seafood I don't like (that I've tried) is packaged tuna.
 - My favorite overall Persona character is Kotone Shiomi/FeMC, my second favorite is Yosuke Hanamura, and my third is Futaba Sakura.
 - I have a fascination with operating systems. I've installed like... 7 different Linux distros on my little tester laptop. (It's old, can't do much.) Right now, it's running Endeavour OS. Arch didn't work. I don't use Arch btw :(.
