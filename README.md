@@ -21,7 +21,8 @@
 ### 💜 social links (heh, Persona reference):
 - [YouTube](https://www.youtube.com/channel/UCK1WdQECm5ZvFF6VF9KD0pg)
 - [Tumblr](https://mydarlingvivi.tumblr.com/)
-- [Instagram](https://www.instagram.com/yourantivirusdied/) 
+- [Instagram](https://www.instagram.com/yourantivirusdied/)
+- [Spacehey](https://spacehey.com/profile?id=2710202)
 
 
 ### 🖤 about me 2 -- useless facts:
