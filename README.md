@@ -16,6 +16,7 @@
 - My dream is to become a cybersecurity lawyer!
 - I also wish to develop at least one game in the future.
 - I am currently learning Java, C#, and C++.
+- (Nov. 3 update:) I'll be so unstoppable once I figure out JavaFX
 - I would love to make new friends within the programming community. You can contact me via Discord, just know that I would prefer to talk to people under 25!
 
 ### 💜 social links (heh, Persona reference):
